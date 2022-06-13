@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ar-mage-ddon
-- 👀 I don't know how to code - I don't know why I have GitHub
+- 👀 My name is Rin and I'm a current high school senior.
 - 📫 How to reach me - rin#6986 on Discord
 
 <!---
