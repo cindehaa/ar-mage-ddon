@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ar-mage-ddon
-- 👀 My name is Rin and I'm a current high school senior.
+- 👀 My name is Rin and I'm a prospective UW CS graduate
 - 📫 How to reach me - rin#6986 on Discord
 
 <!---
