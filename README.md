@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ar-mage-ddon
 - 👀 My name is Rin and I'm a prospective UW CS graduate
-- 📫 How to reach me - rin#6986 on Discord
+- 📫 How to reach me - rin#6986 on Discord, @cindehaa on Instagram
 
 <!---
 ar-mage-ddon/ar-mage-ddon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
