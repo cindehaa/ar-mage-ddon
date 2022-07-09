@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ar-mage-ddon
-- 👀 My name is Rin and I'm a prospective UW CS graduate
+- 👀 My name is Cindy but I also go by Rin
 - 📫 How to reach me - rin#6986 on Discord, @cindehaa on Instagram
 
 <!---
